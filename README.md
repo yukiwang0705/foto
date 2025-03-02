@@ -1,3 +1,12 @@
-# foto josef koudelka
-![Koudelka_Spread_1-2500x1621](https://github.com/user-attachments/assets/618ad86c-c020-4b8d-a394-f7be5b43202a)
-![Josef Koudelka photographing atop a Soviet tank, Prague, August 1968  Photographer unknown; from Josef Koudelka Next (Aperture, 2023)](https://github.com/user-attachments/assets/eb7826c6-686d-4d4b-9b15-740757c23911)
+![Josef Koudelka, Black Triangle region (Ore Mountains), Czechoslovakia, 1991](https://github.com/user-attachments/assets/b79a184d-a0f1-46a5-bc80-f5c0e0d54812)![Sarah Moon, Robert Delpire and JK, 1978; from Josef Koudelka Next (Aperture, 2023)  © 2023 Sarah Moon](https://github.com/user-attachments/assets/466f54d1-700e-4706-9481-f8fe0830b6bb)# foto josef koudelka
+![Josef Koudelka by Henri Cartier-Bresson](https://github.com/user-attachments/assets/4850e91d-cb2b-4421-802f-bda604cd01dc)
+![JK (held aloft on shoulders) with coworkers from the Agrolet company, Prague, ca  1965  Photographer unknown; from Josef Koudelka Next (Aperture, 2023)](https://github.com/user-attachments/assets/a623e314-0ab0-4042-81b7-34a4540a0957)
+![Josef Koudelka photographing atop a Soviet tank, Prague, August 1968  Photographer unknown; from Josef Koudelka Next (Aperture, 2023)](https://github.com/user-attachments/assets/5fb58d0b-fdac-4a7d-864b-ae5382d74bc4)
+![Marthe Cartier-Bresson, Henri Cartier-Bresson, Jill Hartley, Lucina Hartley Koudelka, and JK at the home of Cartier-Bresson and Martine Franck, under the tree by which bottles of slivovitz are bu](https://github.com/user-attachments/assets/910738f9-028a-4f34-819e-db2051677ccf)
+![Sarah Moon, Robert Delpire and JK, 1978; from Josef Koudelka Next (Aperture, 2023)  © 2023 Sarah Moon](https://github.com/user-attachments/assets/5f7ae544-ffe2-46df-9a22-882e55baf98b)
+![Josef Koudelka A brown coal mine  The Black Triangle, Czech Republic  1991  © Josef Koudelka  Magnum Photos](https://github.com/user-attachments/assets/4ff9dc5e-3373-4382-b1c7-497f4fe8a283)
+![Josef Koudelka Romania  1994  © Josef Koudelka  Magnum Photos](https://github.com/user-attachments/assets/0a05f765-ab20-4b5f-b29e-15c1c65676aa)
+![Josef Koudelka A brown coal mine  The Black Triangle, Czech Republic  1991  © Josef Koudelka  Magnum Photos](https://github.com/user-attachments/assets/077ce368-3f3c-46fc-bfab-d3fa4ff2e8e0)
+![Josef Koudelka, Black Triangle region (Ore Mountains), Czechoslovakia, 1991](https://github.com/user-attachments/assets/b13ea972-ff0b-4c68-92e6-8b3457034463)
+![Josef Koudelka About sixty kilometers of the completed Wall consists of eight- to nine-meter-high contrete slabs, particularly in urban areas  Shu'fat Refugee Camp, North-East Jerusalem  Israel-P](https://github.com/user-attachments/assets/6d32b1da-fe4d-44d4-a562-48ad701a54f6)
+![Josef Koudelka The Wall is taking on the characteristics of a unilaterally imposed border, replacing the internationally recognized Green Line  Rachel's Tomb](https://github.com/user-attachments/assets/1cceceb5-4930-4b16-88bd-9fdbe2e4f3ed)
